@@ -1,2 +1,2 @@
 Hi
-my nmae is vidy from hyd
+my name is vidy from Bhimavaram
